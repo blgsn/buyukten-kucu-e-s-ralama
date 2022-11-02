@@ -1,0 +1,1 @@
+# buyukten-kucu-e-s-ralama
